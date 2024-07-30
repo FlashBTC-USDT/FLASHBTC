@@ -59,7 +59,7 @@ Note : There is no need to waste your and my time with unnecessary things🤷
 
 CONTACT ONLY FOR BUY Product
 WhatsApp: https://wa.me/14235306433
-Telegram : https://t.me/flashBU
+Telegram : https://t.me/Customers_Support_CS
 
 Telegram:
 
